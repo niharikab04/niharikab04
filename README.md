@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **niharikaaburra@gmail.com** 
 
-- ⚡ Fun fact **i workout some peotry now and then**
+- ⚡ Fun fact **i workout some poetry now and then**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
